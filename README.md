@@ -14,3 +14,7 @@ Meu Contato:
 Skype: marco.olivers</p>
 Email: marcomoa@hotmail.com</p></p>
 Whatsapp: +55 (38) 99186-3004</p>
+
+--------------------------------
+
+Foda-se sa merda porra
